@@ -12,3 +12,5 @@ Daraufhin wird "Dude" böse und versucht, die Beschmutzer zur Rechenschaft zu zi
 * bekifft
 * etc. 
 
+> bekackt
+
