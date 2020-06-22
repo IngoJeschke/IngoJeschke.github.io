@@ -6,3 +6,9 @@ den wiederum Gangster zu erpressen versuchen. Als diese ihr vermeintliches Opfer
 antreffen, urinieren sie kurzerhand auf dessen Teppich. 
 Daraufhin wird "Dude" böse und versucht, die Beschmutzer zur Rechenschaft zu ziehen.
 
+## Charaktereigenschaften
+* Besoffen
+* faul
+* bekifft
+* etc. 
+
