@@ -1,1 +1,1 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gmx.ch%2Fmagazine%2Funterhaltung%2Fkino%2Fdude-70-kultigsten-rollen-jeff-bridges-34220484&psig=AOvVaw25UEAyMETxEc7Sr_JvOiIG&ust=1592922044766000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCICG0pbPleoCFQAAAAAdAAAAABAJ"/>
